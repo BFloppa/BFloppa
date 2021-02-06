@@ -4,7 +4,7 @@ IG🧡: https://www.instagram.com/nolesabesalshitpost/
 
 YT❤️: https://www.youtube.com/channel/UCVMLE0U-4S9NZt25q1oOiYg
 
-[🍪]VERSION ===>>> 1.0.0 (BETA)
+[🍪]VERSION ===>>> 1.0.3 (BETA)
 
 [👑]KING    ===>>> GRUPO FOME
 
