@@ -8,8 +8,6 @@ YT❤️: https://www.youtube.com/channel/UCVMLE0U-4S9NZt25q1oOiYg
 
 [👑]KING    ===>>> GRUPO FOME
 
-[💌]IDEAS   ===>>> WEDELF, PAPITAS SABOR JAMON Y FRAN
-
 [💖]APOYO   ===>>> WEDELF
 
 ## Comandos
